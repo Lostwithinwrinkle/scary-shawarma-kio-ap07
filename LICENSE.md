@@ -1,4 +1,4 @@
-
+scary shawarma kiosk Script rare is the best scary shawarma kiosk Script, featuring no clip and auto-farm. Safe and powerful for all your needs.
 
 
 
